@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Raghav-Somasundaram
 - 🌱 B.Tech. Information Technology @ PSG TECH
-- - 👀 I’m a Cricketer, pursuing my batchelors degree in Engineering.
+- 👀 I’m a Cricketer, pursuing my batchelors degree in Engineering.
 - 💞️ I’m looking to collaborate with developers
 - 📫 You can contact me here or with my mail ID : raghavcricketrls@gmail.com
 - My Instagram ID : ____r.a.g.h.a.v____rd
